@@ -1,1 +1,0 @@
-# naimuldos.github.io
